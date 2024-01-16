@@ -2,7 +2,7 @@
 what to eat in KL
 
 
-🐝 Chicken lollipop, Anjapar Chettinad, Masjid Jamek
+🐝 Chicken lollipop, lasi, masala tea, Anjapar Chettinad, Masjid Jamek
 
 🐝 Petai Ice Cream
 
