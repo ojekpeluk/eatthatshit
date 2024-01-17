@@ -11,3 +11,7 @@ what to eat in KL
 🐢 sashimi
 
 🦈 That kopitiam in front of De Green condo, Bukit Jalil
+
+🔪 salt jigen, pasar OUG or ipoh
+
+😘 月光河 in ipoh
