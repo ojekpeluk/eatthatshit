@@ -15,3 +15,5 @@ what to eat in KL
 🔪 salt jigen, pasar OUG or ipoh
 
 😘 月光河 in ipoh
+
+🍣 Maruhi Sakaba @ Taman Desa
