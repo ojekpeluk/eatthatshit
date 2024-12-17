@@ -17,3 +17,5 @@ what to eat in KL
 😘 月光河 in ipoh
 
 🍣 Maruhi Sakaba @ Taman Desa
+
+🐖 Sek Yuen Restaurant
