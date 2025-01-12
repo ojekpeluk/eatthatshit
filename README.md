@@ -20,7 +20,26 @@ what to eat in KL
 
 🐖 Sek Yuen Restaurant
 
-🐷 仁嘉隆有口福古早味封肉 https://www.facebook.com/profile.php?id=61559966162900&mibextid=ZbWKwL
+🐷 仁嘉隆有口福古早味封肉
+https://www.facebook.com/profile.php?id=61559966162900&mibextid=ZbWKwL
 
 🍖 Wagyu Buffet @ JPOT Old Klang Road
 https://www.instagram.com/reel/DEM5xqvp-zO/?igsh=d3k2NzdqcXhzaXdo
+
+🐟 Aquascape Cafe
+https://www.instagram.com/reel/DCV27E8P1J5/
+
+🍜 Raijin Japanese Ramen
+https://www.instagram.com/reel/DAVgSn3TGt3/
+
+🥓 Samgori @ Sri Hartamas KL
+https://www.instagram.com/reel/C-pStUwhvNq/
+
+🦪 Poh Teck Lala Stall
+https://www.instagram.com/reel/C4dEXYip27u/
+
+🍛 Nasi Lemak Pork Belly
+https://www.instagram.com/reel/C-VI1q5pwZC/
+
+🍔 Kaya Kappo & Kissaten 📍 SS15
+https://www.instagram.com/reel/C_qE5VTSEHU/
