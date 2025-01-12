@@ -43,3 +43,12 @@ https://www.instagram.com/reel/C-VI1q5pwZC/
 
 🍔 Kaya Kappo & Kissaten 📍 SS15
 https://www.instagram.com/reel/C_qE5VTSEHU/
+
+🐠 Sunset Seaside Restaurant
+https://www.instagram.com/reel/C-XVLZtu8P4/
+
+🐓 Traditional Beggar Chicken
+https://www.instagram.com/reel/DDHm0MBT5pm/
+
+🍣 Uo Shin Hartamas
+https://www.instagram.com/reel/DDjtRGIyJP8/
