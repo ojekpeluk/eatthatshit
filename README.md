@@ -24,7 +24,7 @@ what to eat in KL
 https://www.facebook.com/profile.php?id=61559966162900&mibextid=ZbWKwL
 
 🍖 Wagyu Buffet @ JPOT Old Klang Road
-https://www.instagram.com/reel/DEM5xqvp-zO/?igsh=d3k2NzdqcXhzaXdo
+https://www.instagram.com/reel/DEM5xqvp-zO/
 
 🐟 Aquascape Cafe
 https://www.instagram.com/reel/DCV27E8P1J5/
@@ -52,3 +52,6 @@ https://www.instagram.com/reel/DDHm0MBT5pm/
 
 🍣 Uo Shin Hartamas
 https://www.instagram.com/reel/DDjtRGIyJP8/
+
+🍖 Michin Grill, Bukit Damansara
+https://www.instagram.com/reel/DEhPLBoJWgW/
