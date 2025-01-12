@@ -21,3 +21,6 @@ what to eat in KL
 🐖 Sek Yuen Restaurant
 
 🐷 仁嘉隆有口福古早味封肉 https://www.facebook.com/profile.php?id=61559966162900&mibextid=ZbWKwL
+
+🍖 Wagyu Buffet @ JPOT Old Klang Road
+https://www.instagram.com/reel/DEM5xqvp-zO/?igsh=d3k2NzdqcXhzaXdo
