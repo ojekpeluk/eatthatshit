@@ -22,11 +22,9 @@ what to eat in KL
 
 🐷 仁嘉隆有口福古早味封肉
 https://www.facebook.com/profile.php?id=61559966162900&mibextid=ZbWKwL
-📍 https://maps.app.goo.gl/Ja38jK9tyVSNLL1T7
 
 🍖 Wagyu Buffet @ JPOT Old Klang Road
 https://www.instagram.com/reel/DEM5xqvp-zO/
-📍 https://maps.app.goo.gl/Rf37grZf2cCSxWF17
 
 🐟 Aquascape Cafe
 https://www.instagram.com/reel/DCV27E8P1J5/
