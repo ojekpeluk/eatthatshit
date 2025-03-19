@@ -24,18 +24,14 @@ what to eat in KL
 
 🍖 [Wagyu Buffet @ JPOT Old Klang Road](https://www.instagram.com/reel/DEM5xqvp-zO/)[📍](https://maps.app.goo.gl/fqrAdtpnZpt1haA49)
 
+🐟 [Aquascape Cafe](https://www.instagram.com/reel/DCV27E8P1J5/)[📍](https://maps.app.goo.gl/r6TesXgNbumoZ13TA)
 
-🐟 Aquascape Cafe
-https://www.instagram.com/reel/DCV27E8P1J5/
+🍜 [Raijin Japanese Ramen](https://www.instagram.com/reel/DAVgSn3TGt3/)[📍](https://maps.app.goo.gl/e95rPPSRQEpgvJ2x5)
 
-🍜 Raijin Japanese Ramen
-https://www.instagram.com/reel/DAVgSn3TGt3/
+🥓 [Samgori @ Sri Hartamas KL](https://www.instagram.com/reel/C-pStUwhvNq/)[📍](https://maps.app.goo.gl/ZoCqQ7C98U9uS3ih9)
 
-🥓 Samgori @ Sri Hartamas KL
-https://www.instagram.com/reel/C-pStUwhvNq/
+🦪 [Poh Teck Lala Stall](https://www.instagram.com/reel/C4dEXYip27u/)[📍](https://maps.app.goo.gl/hrQCWTrCdj6W1PVL8)
 
-🦪 Poh Teck Lala Stall
-https://www.instagram.com/reel/C4dEXYip27u/
 
 🍛 Nasi Lemak Pork Belly
 https://www.instagram.com/reel/C-VI1q5pwZC/
